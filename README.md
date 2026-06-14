@@ -8,6 +8,6 @@ hawllo, I'm An XD | she/they
 
 I like playing roblox and really into the horror games there 👻 up for playing together?
 
-<img width="571" height="320" alt="51a2b4469ace72f6f0a5b0efd4b3c55b" src="https://github.com/user-attachments/assets/7c0c4eed-15e0-4376-9222-0d5c787f8f0b" />
+<img width="500" height="281" alt="ff86913f53e4d1e8657da0aca1f6e7a5" src="https://github.com/user-attachments/assets/3a983f40-5656-49a0-a00c-7abf59b07af5" />
 
 DNI: ppl under 15 yo, negative, weirdos, sex addicts, seeking love, ppl who frequently use offensive language, enjoy ragebait or make me feel uncomfortable!
