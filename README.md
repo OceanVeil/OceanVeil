@@ -1,3 +1,5 @@
+major Nanami Kento lover here!
+
 <img width="498" height="281" alt="323d52457f5f31046c9333b802024115" src="https://github.com/user-attachments/assets/04537ff1-6812-4efb-96b2-27481414aa8d" />
 
 hawllo, I'm An XD
