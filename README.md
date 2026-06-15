@@ -4,7 +4,7 @@
 
 hawllo, I'm An XD | she/they
 
-.✦ ݁˖ you'll easily find me at the market. I'm mostly afk so please whisper if needed and C + H always welcome ⊹ ࣪ ˖
+.✦ ݁˖ you'll easily find me at the market or the sea. I'm mostly afk so please whisper if needed and C + H always welcome ⊹ ࣪ ˖
 
 I like playing roblox and really into the horror games there 👻 up for playing together?
 
