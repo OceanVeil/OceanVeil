@@ -4,7 +4,7 @@
 
 hawllo, I'm An XD | she/they
 
-.✦ ݁˖ You'll easily catch me just sitting and idling between the market, the library, and the sea. I'm mostly afk so please whisper if needed and C + H always welcome ⊹ ࣪ ˖
+.✦ ݁˖ you'll easily catch me just sitting and idling between the market, the library, and the sea. I'm mostly afk so please whisper if needed and C + H always welcome ⊹ ࣪ ˖
 
 I like playing roblox and really into the horror games there 👻 up for playing together?
 
