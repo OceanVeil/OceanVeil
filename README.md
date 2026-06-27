@@ -1,5 +1,5 @@
 𝑚𝑎𝑗𝑜𝑟 𝑁𝑎𝑛𝑎𝑚𝑖 𝐾𝑒𝑛𝑡𝑜 𝑙𝑜𝑣𝑒𝑟 ℎ𝑒𝑟𝑒 .ᐟ
-
+https://open.spotify.com/track/5yxIenY5kSLlgTr3XGYw9p?si=42b9f63b34924c61 
 <img width="498" height="281" alt="323d52457f5f31046c9333b802024115" src="https://github.com/user-attachments/assets/04537ff1-6812-4efb-96b2-27481414aa8d" />
 
 hawllo, I'm An XD | she/they
