@@ -1,4 +1,5 @@
 <div style="height: 105px; overflow: hidden; display: inline-block;">
+  
   𝑚𝑎𝑗𝑜𝑟 𝑁𝑎𝑛𝑎𝑚𝑖 𝐾𝑒𝑛𝑡𝑜 𝑙𝑜𝑣𝑒𝑟 ℎ𝑒𝑟𝑒 .ᐟ
   
   <img src="https://lanyard.cnrad.dev/api/1148638827334860860" alt="Spotify Status" style="position: relative; top: -105px;" />
