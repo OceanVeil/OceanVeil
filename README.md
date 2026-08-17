@@ -14,4 +14,4 @@ dang- I'm not good at keeping a conversation going with new friends but I’m re
 
 <img width="500" height="281" alt="ff86913f53e4d1e8657da0aca1f6e7a5" src="https://github.com/user-attachments/assets/3a983f40-5656-49a0-a00c-7abf59b07af5" />
 
-DNI: ppl under 15 yo, negative, weirdos, sex addicts, seeking love, ppl who frequently use offensive language, enjoy ragebait or make me feel uncomfortable!
+DNI: ppl under 17 yo, negative, weirdos, sex addicts, seeking love, ppl who frequently use offensive language, enjoy ragebait or make me feel uncomfortable!
