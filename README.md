@@ -5,7 +5,7 @@
 
 hawllo, I'm An XD | they/them
 
-.✦ ݁˖ you'll easily catch me just sitting and idling between the market, the library and the sea. Anyways I'm mostly afk so please whisper if needed and C + H always welcome ⊹ ࣪ ˖
+.✦ ݁˖ you'll easily catch me just sitting and idling between the market, the library and the sea. I'm often AFK playing something else, just whisper me so I won't miss your text! and C + H always welcome ⊹ ࣪ ˖
 
 dang- I'm not good at keeping a conversation going with new friends but I’m really into cats and horror games, so hope we can dive into this topic sometime yayy! also, I’m a great listener if you ever wanna share anything (except for NSFW stuff)
 
