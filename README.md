@@ -9,6 +9,7 @@ hawllo, I'm An XD | they/them
 
 I love conversations but I'm not great at keeping them going. At least I'm a good listener if you want to share anything (except for NSFW topics since they make me uncomfortable) 
 
-<img width="500" height="281" alt="ff86913f53e4d1e8657da0aca1f6e7a5" src="https://github.com/user-attachments/assets/3a983f40-5656-49a0-a00c-7abf59b07af5" />
+<img width="736" height="736" alt="3096455fb697d2eeb48d23f040deded7" src="https://github.com/user-attachments/assets/c868901d-8321-44fc-8386-8709e1db4fce" />
+
 
 DNI: ppl under 17 yo, negative, weirdos, sex addicts, seeking love, ppl who frequently use offensive language, enjoy ragebait or make me feel uncomfortable!
