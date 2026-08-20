@@ -2,9 +2,6 @@
   <img src="https://lanyard.cnrad.dev/api/1148638827334860860" alt="Spotify Status" />
 </p>
   
-𝑚𝑎𝑗𝑜𝑟 𝑁𝑎𝑛𝑎𝑚𝑖 𝐾𝑒𝑛𝑡𝑜 𝑙𝑜𝑣𝑒𝑟 ℎ𝑒𝑟𝑒 .ᐟ
-  
-<img width="498" height="281" alt="323d52457f5f31046c9333b802024115" src="https://github.com/user-attachments/assets/04537ff1-6812-4efb-96b2-27481414aa8d" />
 
 hawllo, I'm An XD | they/them
 
