@@ -3,7 +3,7 @@
 </p>
   
 
-hawllo, I'm An XD | they/them
+hawllo, I'm An XD | they/them | pretty chill and energetic but I easily lose energy around people who talk too much 
 
 .✦ ݁˖ you'll easily catch me just sitting and idling between the market, the library and the sea. I'm often afk playing something else, just whisper me so I won't miss your text! and C + H always welcome ⊹ ࣪ ˖
 
