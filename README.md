@@ -8,8 +8,7 @@
   </a>
 </p>
 
-hawllo, I'm An ◜Ashveil lover◞ XD | she/they | an introvert who is pretty open when comfortable
-
+hawllo, I'm An ◜Ashveil lover◞ XD | she/they | INTJ
 .✦ ݁˖ you'll easily catch me just sitting and idling between the market, the library and the sea. Since I'm a slow replier and often afk playing something else, just whisper me so I won't miss your text! and C + H always welcome ⊹ ࣪ ˖
 
 I love conversations but I'm not great at keeping them going. At least I'm a good listener if you want to share anything (except for NSFW topics since they make me uncomfortable) 
