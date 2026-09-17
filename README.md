@@ -8,11 +8,10 @@
   </a>
 </p>
 
-hawllo, I'm An ◜Ashveil lover◞ XD | she/they | INTJ
+hawllo, I'm An ◜Ashveil lover◞ | she/they | INTJ 
+.✦ ݁˖ you'll easily catch me just idling between the market, the hill and the sea. Since I'm a slow replier and often afk playing something else, just whisper me so I won't miss your text! and C + H always welcome ⊹ ࣪ ˖
 
-.✦ ݁˖ you'll easily catch me just sitting and idling between the market, the library and the sea. Since I'm a slow replier and often afk playing something else, just whisper me so I won't miss your text! and C + H always welcome ⊹ ࣪ ˖
-
-I love conversations but I'm not great at keeping them going. At least I'm a good listener if you want to share anything (except for NSFW topics since they make me uncomfortable) 
+I love conversations but I'm not great at keeping them going. At least I'm a good listener if you want to share anything (except for NSFW topics since they make me uncomfortable) ദ്ദി˙∇˙)ว
 
 <img width="498" height="235" alt="60515eca291621e67d0bb58f9df9e70d" src="https://github.com/user-attachments/assets/14d11b7b-3cca-4be2-9dbf-50b68653ec85" />
 
