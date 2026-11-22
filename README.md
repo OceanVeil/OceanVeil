@@ -8,7 +8,7 @@
   </a>
 </p>
 
-hawllo, I'm An ◜Ashveil lover◞ | INTJ | an artist who is too lazy to draw (;´□｀)/ |
+hawllo, I'm An ◜Ashveil lover◞ | INTJ | an artist who is too lazy to draw |
 
 .✦ ݁˖ you'll easily catch me just idling between the market, the hill and the sea. Since I'm a slow replier and often afk playing something else, just whisper me so I won't miss your text! and C + H always welcome ⊹ ࣪ ˖
 
